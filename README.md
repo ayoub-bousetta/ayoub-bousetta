@@ -5,7 +5,7 @@
 - 👯 I’m looking to collaborate on Someone/Something
 - 🤔 I’m looking for help with Something
 - 💬 Ask me about Something
-- 📫 How to reach me: aubbusta@gmail.com / aubbusta.co
+- 📫 How to reach me: aubbusta@gmail.com / abusta.com
 - ⚡ Fun fact: Something exist
 
 
